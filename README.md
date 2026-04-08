@@ -1,1 +1,1 @@
-# Chili-JIn-EGS-coursework
+# Chili-Jin-EGS-coursework
